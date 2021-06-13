@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @frogies44
-- 📫 How to reach me: frogies44@gmail.com & frogies44#0044 on discord
